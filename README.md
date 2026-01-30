@@ -1,0 +1,1 @@
+# Deprem-Verisi-Gorsellestirme-ve-Analizi
